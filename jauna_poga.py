@@ -1,0 +1,1 @@
+Pirmaaaa rinda
